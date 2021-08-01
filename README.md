@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Shardaiiebe
+- 👀 I’m interested in computers, programming, minecraft modding,...
+- 🌱 I’m currently learning minecraft modding
+- 📫 How to reach me: iebe.dhaeze@gmail.com
